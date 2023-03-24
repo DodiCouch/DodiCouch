@@ -4,3 +4,9 @@
 #### Reach me:
 [📫 Via LinkedIn](https://www.linkedin.com/in/dorothy-couch/)
 
+| Intentionals: | For fun: |
+| :--- | :--- |
+| Study | Make good coffee |
+| Hike | Experiment with sourdough |
+| Savor my kids | Listen to music |
+| Connect with friends | Invite people to our home | 
